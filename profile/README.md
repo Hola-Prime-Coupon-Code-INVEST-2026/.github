@@ -1,6 +1,6 @@
-# 🏆 Hola Prime Coupon Code 2026 | Use Code: INVEST for 15% OFF
+# 🏆 Hola Prime Coupon Code 2026 | Use Code: INVEST for 20% OFF
 
-> Use code **INVEST** at checkout to get 15% OFF Hola Prime funded trading accounts.
+> Use code **INVEST** at checkout to get 20% OFF Hola Prime funded trading accounts.
 > Best Hola Prime promo codes, discount codes & deals for prop traders.
 
 ## 🎯 Coupon Code
@@ -8,7 +8,7 @@
 INVEST
 ```
 
-👉 [Click Here to Get 15% OFF Hola Prime](https://trader.holaprime.com/en/challenges?affiliateId=we)
+👉 [Click Here to Get 20% OFF Hola Prime](https://trader.holaprime.com/en/challenges?affiliateId=we)
 
 ## 💡 What is Hola Prime?
 
@@ -33,7 +33,7 @@ With a growing global community of funded traders and a reputation for deliverin
 1. Click the [discount link](https://trader.holaprime.com/en/challenges?affiliateId=we)
 2. Choose your account size
 3. Enter code **INVEST** at checkout
-4. Get **15% OFF** instantly
+4. Get **20% OFF** instantly
 5. Begin your funded trading journey
 
 [![Hola Prime Discount](https://img.shields.io/badge/Coupon%20Code-INVEST-green)](https://trader.holaprime.com/en/challenges?affiliateId=we)
